@@ -1,0 +1,1 @@
+Out of office. I am currently ignoring emails professionally, as a lifestyle choice, until further notice.
